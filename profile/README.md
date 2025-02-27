@@ -26,8 +26,6 @@ Top Virgin Broadband Deals Available
 
 Virgin Media has some cracking [broadband deals](https://comparebroadbandpackages.co.uk/) right now that won't break the bank. Let's check out the top offers that give you fast internet speeds plus some extra cash back in your pocket.
 
-https://www.youtube.com/watch?v=MledeTczMkw&pp=ygUOI3Zpcmdpbm1lZGlhMDI%3D
-
 ### Virgin Media M125 Fibre Broadband with £80 Bill Credit
 
 Looking for a solid internet deal? The M125 package brings 132Mb download speeds to your home for just £26 monthly. This plan works great for small family homes where multiple devices connect at once.
