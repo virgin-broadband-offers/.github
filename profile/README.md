@@ -1,4 +1,4 @@
-Best Virgin Broadband Deals
+Best Virgin Broadband Offers
 ===========================
 
 ![A family of four excitedly sets up new Virgin Media broadband.](https://app.agilitywriter.ai/img/2025/02/27/introduction-358493754.jpg "A family of four excitedly sets up new Virgin Media broadband.")
